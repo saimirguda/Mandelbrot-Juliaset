@@ -1,0 +1,1 @@
+We have done everything from task 1 however we did not manage do do everzthing on task 2. We also ran into some issues however we tried to solve them howerver we could because the description in the framework was very vauge. 
